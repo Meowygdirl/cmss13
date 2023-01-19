@@ -1,0 +1,1 @@
+Frozen had promised to unban me after three months but he failed to keep his promise so I'm gonna break my promise. So until I unbanned, I'm gonna spam the discord, github, the forum waiting list, and once I get a few laptops from ebay, non-rp every round, killing marines. I will never stop until my promise is fulfilled, period. 
